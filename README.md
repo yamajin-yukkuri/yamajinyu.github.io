@@ -1,0 +1,1 @@
+# yamajinyu.github.io
